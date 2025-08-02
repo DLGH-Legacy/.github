@@ -9,7 +9,7 @@ For $SOL Communities:
 5. For $LAUNCHCOIN the believe.app communtiy:  
 6. ...
 
-  80% of fees and profit form on chain itteraction with DePIN and AMM will go back to token and 20% to operations, nonprofit style of activities, full support for all things OSS & Hardware 
+  80% of fees and profit form [on chain itteraction with DePIN for monetization](https://github.com/DePIN-Monetisation/) and AMM will go back to token and 20% to operations, nonprofit style of activities, full support for all things OSS & Hardware 
 
 1. 10 years in the row project with resources and knowledge accumulation for next 10 years and so on in cycles;
 2. [Use of $DLGH for AMM aka automated market making](https://github.com/automated-market-maker/) entry into all tokens with which @alexdolbun AI agents interact and provide hardware;
@@ -21,7 +21,7 @@ For $SOL Communities:
 8. 2 trillion “AI tokens” per month as goal (quantized by weight and activations) on cheap second hand iPhones & Macs with MLX activation and some cheap NVIDIA latest software supported laptops;
 9. Promotion on [Adult (21+) content website with target for 1000$ = 100 million views ](https://github.com/Adverticing-Networks/) (with re-fund for bots, miss clicks) and with bonus views for promoting the ADs platform as affiliates;
 10. Best practices of Account Based Marketing for organic promotion and approach for HNWI aka high net worth individuals support $DLGH ecosystem;
-11. Best practices of Blog Private Networks and Marketing of Business Profiles on forums for top 100 biggest active sites globally from Dubai & Abu Dhabi 🇦🇪 UAE, Pakistan 🇵🇰 Karachi, Kyrgyzstan 🇰🇬 Bishkek, Hong Kong 🇭🇰 to Singapore 🇸🇬 with Switzerland 🇨🇭 Zurich & Zug and Germany 🇩🇪 Berlin, from United Kingdom 🇬🇧 London to United States 🇺🇸 New York & SoCal + San Francisco & Starbase City Texas … 
+11. Best practices of Blog Private Networks and Marketing of Business Profiles on forums for top 100 biggest active sites globally from Dubai & Abu Dhabi 🇦🇪 UAE, Pakistan 🇵🇰 Karachi, [Kyrgyzstan 🇰🇬 Bishkek](https://htp.kg/), Hong Kong 🇭🇰 to Singapore 🇸🇬 with Switzerland 🇨🇭 Zurich & Zug and Germany 🇩🇪 Berlin, from United Kingdom 🇬🇧 London to United States 🇺🇸 New York & SoCal + San Francisco & Starbase City Texas … 
 
 In progress… 
 
